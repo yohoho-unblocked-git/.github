@@ -6,7 +6,7 @@
 <a href="https://kastelrutherspatzen.de/components/com_jevents/yoho/">CLICK TO PLAY</A>
 
 
-**YoHoHo.io** is a captivating browser-based multiplayer game that immerses players in a pirate-themed battle royale adventure. Developed by Exodragon Games and released in April 2019, the game challenges players to outlast opponents on a shrinking island while collecting treasure and growing stronger.([ovo2.blog][1], [CrazyGames][2])
+**YoHoHo.io unblocked** is a captivating browser-based multiplayer game that immerses players in a pirate-themed battle royale adventure. Developed by Exodragon Games and released in April 2019, the game challenges players to outlast opponents on a shrinking island while collecting treasure and growing stronger.([ovo2.blog][1], [CrazyGames][2])
 
 In YoHoHo.io, players start as modest pirates equipped with basic weapons. By collecting scattered gold coins and defeating other pirates, players increase in size and strength, enhancing their combat abilities. The game features a unique dash attack mechanic, allowing for swift movements and strategic strikes against adversaries. As the match progresses, a toxic mist encroaches upon the island, reducing the playable area and intensifying encounters among remaining players .([yohoho.blog][3], [gamenora.com][4], [CrazyGames][2])
 
